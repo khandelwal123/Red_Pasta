@@ -10,4 +10,4 @@
 8. Put in pasta after the mixture gets liquidy
 9. Stir for 3 mins
 
-**Pasta is ready!! Enjoy**
+_**Pasta is ready!! Enjoy**_
